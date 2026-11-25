@@ -1,4 +1,4 @@
-# Hi there, I'm Julienne Viktoria 👋
+# Hi there, I'm Jerome Durna
 
 **BS Information Technology Student (Major in Information Management)**  
 *Bestlink College of the Philippines* | *Seeking an IT, Database, or Web Development Internship*
